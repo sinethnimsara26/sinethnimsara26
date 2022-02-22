@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sinethnimsara26
+- 👋 Hi, I’m Sineth Nimsara Pallewaththa
 - 👀 I’m interested in Web Design
 - 🌱 I’m currently learning Web Design
 - 💞️ I’m looking to collaborate on 
